@@ -10,8 +10,8 @@ This was my first SMG2 custom level I've ever made. Looking at some reviews, it 
 
 [Download](https://www.mediafire.com/file/mt6e3dorfx1ttyr/Super_Mario_Galaxy_69.zip/file)
 
-Community Rating: Not yet rated<br/>
-Community Leader Rating: Not yet rated
+Community Rating: Not Yet Rated<br/>
+Community Leader Rating: Not Yet Rated
 
 ### Credits
 Tater-Tot Tunes for the music https://www.youtube.com/watch?v=INe8EFD6i34
